@@ -10,5 +10,6 @@
 
 
 #### Social Media Accounts 
+- Email : xKurtDanielle@gmail.com
 - Discord : KurtDanielle#3757
 - Twitter : @ChillKURTLangTo
