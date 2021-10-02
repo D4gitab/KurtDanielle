@@ -9,7 +9,4 @@
 - 🎮 I'm a gamer I play CS:GO,Valorant,Minecraft,GTA V,COD Warzone, League Of Legends and more!
 
 
-#### Social Media Accounts 
-- Email : xKurtDanielle@gmail.com
-- Discord : KurtDanielle#3757
-- Twitter : @ChillKURTLangTo
+#### Reach Me : xKurtDanielle@gmail.com
