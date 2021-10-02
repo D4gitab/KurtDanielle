@@ -10,5 +10,5 @@
 
 
 #### Social Media Accounts 
-#### - Discord : KurtDanielle#3757
-#### - Twitter : @ChillKURTLangTo
+- Discord : KurtDanielle#3757
+- Twitter : @ChillKURTLangTo
