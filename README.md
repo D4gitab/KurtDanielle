@@ -5,7 +5,6 @@
 #### BIO
 
 - 📖 I'm currently learning Roblox Lua and Discord Python
-- 👨‍💻 I'm currently working on Project Alon (Alon is a filipino word that means wave)
 - 🎮 I'm a gamer I play CS:GO,Valorant,Minecraft,GTA V,COD Warzone, League Of Legends and more!
 
 
